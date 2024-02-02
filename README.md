@@ -1,2 +1,0 @@
-# Calismalarim
-Kod Çalışmalarım
